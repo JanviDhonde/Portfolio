@@ -22,4 +22,4 @@ Your feedback is valuable to me! Please feel free to share your thoughts or sugg
 - 🌐 LinkedIn: https://www.linkedin.com/in/janvidhonde/
 - 📧 Emailid: janvidhonde@gmail.com
 - 📱 ContactNo: +91 7588575196
-- 📝 Resume: 
+- 📝 Resume: https://drive.google.com/file/d/18WJxrtPstdSoCih4SIiif77FtAn5km16/view
